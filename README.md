@@ -1,4 +1,4 @@
-# External-Links---M.R.-Osborne
+# External Links for Author M.R.Osborne
 External Links - M.R. Osborne (Author)
 •	official website https://www.mrosborne.co.uk
 •	https://rosecirclebooks.com/published-books/
